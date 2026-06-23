@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer sience
 - 🌱 I’m currently learning C languange
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me kaanyrtmn06@hotmail.com
+- 📫 How to reach me 240206429@hotmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I
 
